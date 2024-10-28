@@ -1,2 +1,2 @@
 # mah_journeyC-
-There is only C++ Repository
+Just giveaway everyday in here !!! @uziii2208
